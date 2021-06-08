@@ -1,1 +1,1 @@
-# MortalKombat
+https://Adzikne.github.io/MortalKombat/
